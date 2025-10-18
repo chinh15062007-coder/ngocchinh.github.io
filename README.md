@@ -1,1 +1,1 @@
-# ngocchinh.github.io
+My name is Chinh. My full name is Nguyen Ngoc Chinh. I'm student in University Infomation of Technology. I'm 18 years old, tall 1m65 and weigh 62kg. My hobbies are play games, study and listen music. I'm very Love Chemistry.
