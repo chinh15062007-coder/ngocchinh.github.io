@@ -28,7 +28,7 @@ Công việc hiện tại : mình đang là sinh viên Trường Đại học C�
 
 + Đi vòng quanh thế giới, ngắm nhìn những khung cảnh đẹp nhất🎇 🖼️
 
-- Một số thông tin khác của mình 🍭🧨
+- Một số thông tin liên hệ khác của mình 🍭🧨
 + Trang Facebook :https://www.facebook.com/chinh.conca.9
 
 + Gmail : chinh15062007@gmail.com
