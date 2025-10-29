@@ -24,6 +24,8 @@ Công việc hiện tại : mình đang là sinh viên Trường Đại học C�
 
 - Ước mơ của bản thân ✨🚀
 
++Trở thành một kĩ sư AI làm việc trong lĩnh vực robot ⚙🤖
+
 + Trở thành giáo viên dạy Hóa ( vì mình siêu thích Hóa luôn ) 👨‍🏫🫰🥰
 
 + Đi vòng quanh thế giới, ngắm nhìn những khung cảnh đẹp nhất🎇 🖼️
